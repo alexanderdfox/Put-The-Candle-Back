@@ -25,3 +25,6 @@ Clean it up a little and turn it into something fun (art space, event place, mus
 Or just tear it down and use the land for something new.
 
 ### Fixing the old incinerator to burn trash the legal way is crazy expensive. Changing the laws is almost impossible.
+
+
+The Concept: https://www.youtube.com/shorts/NXSzQ_2ZUS4 "Make Texas Trash Energy Again!" https://www.naturejab.com
